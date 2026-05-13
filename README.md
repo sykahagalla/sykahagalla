@@ -1,5 +1,5 @@
 
-# 🚀 Welcome to My badu pot ekt
+# 🚀 Welcome to My Developer Portfolio
 
 <div align="center">
 
